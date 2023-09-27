@@ -9,6 +9,6 @@
 ![Annotation 2023-03-04 090952](https://github.com/Zarpoosh/img/assets/122268379/28af4f55-600e-4a0e-981b-08c7ee1fd438)
 
 
-![Uploading nobg-logo.png…]()
 
 
+![nobg-logo](https://github.com/Zarpoosh/img/assets/122268379/21edd32e-b5ac-4fab-81f1-7afc33d67f4f)
