@@ -12,3 +12,5 @@
 
 
 ![nobg-logo](https://github.com/Zarpoosh/img/assets/122268379/21edd32e-b5ac-4fab-81f1-7afc33d67f4f)
+![what-is-binary-and-how-does-it-work-4692749-1-1eaec2e636424e71bb35419ef8d5005b](https://github.com/Zarpoosh/img/assets/122268379/2ae5f443-6a70-4a2c-808f-6d4b17fd2339)
+![InShot_20230428_154136328](https://github.com/Zarpoosh/img/assets/122268379/6a1c4726-54fa-431d-8c26-1af8a634530c)
