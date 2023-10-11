@@ -1,8 +1,16 @@
 # img
+![memorygame](https://github.com/Zarpoosh/img/assets/122268379/12a4b5d1-7439-41ab-8110-d5abcedc16ea)
+![myweb](https://github.com/Zarpoosh/img/assets/122268379/b45b308f-e08e-4eb6-b7db-33e9d4def37e)
+![Uploading twitter.png…]()
+![socialapp](https://github.com/Zarpoosh/img/assets/122268379/19f511b9-e1e3-4444-9b54-fcc12a44756f)
+
+![submitform](https://github.com/Zarpoosh/img/assets/122268379/5dcecf67-3e8d-4382-8643-9c437552cc0f)
+
+![what-is-binary-and-how-does-it-work-4692749-1-1eaec2e636424e71bb35419ef8d5005b](https://github.com/Zarpoosh/img/assets/122268379/f8aeea41-40dd-451b-8fa0-fb96caab223c)
+
+
+
 ![InShot_20230428_154136328](https://github.com/Zarpoosh/img/assets/122268379/cbae79d6-782e-42e0-9fb2-088608257297)
-
-
-
 ![minicode - Copy](https://github.com/Zarpoosh/img/assets/122268379/e34c543d-fb29-4d60-90bf-b1bceceaec16)
 ![logo-one-copy](https://github.com/Zarpoosh/img/assets/122268379/2bb5cba7-5eed-43fb-9deb-b1269b413ebe)
 ![windows_software_compact_disc](https://github.com/Zarpoosh/img/assets/122268379/58e2651e-ec33-42a3-8a00-d2205091c3c5)
