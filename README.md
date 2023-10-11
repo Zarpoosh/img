@@ -5,6 +5,7 @@
 ![socialapp](https://github.com/Zarpoosh/img/assets/122268379/19f511b9-e1e3-4444-9b54-fcc12a44756f)
 
 ![submitform](https://github.com/Zarpoosh/img/assets/122268379/5dcecf67-3e8d-4382-8643-9c437552cc0f)
+![newsweb](https://github.com/Zarpoosh/img/assets/122268379/32944de7-84c0-4a07-9ab5-bcb94f1b912e)
 
 ![what-is-binary-and-how-does-it-work-4692749-1-1eaec2e636424e71bb35419ef8d5005b](https://github.com/Zarpoosh/img/assets/122268379/f8aeea41-40dd-451b-8fa0-fb96caab223c)
 
